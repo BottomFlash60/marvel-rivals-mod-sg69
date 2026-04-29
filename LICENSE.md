@@ -1,4 +1,4 @@
-
+Experience marvel rivals mod menu like never before with marvel rivals mod menu updated Wall Detection - enhanced hero vision and auto-dodge attacks, the #1 wh. Includes enhanced
 
 
 
